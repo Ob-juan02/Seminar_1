@@ -1,1 +1,1 @@
-# Seminar_1
+Hei jeg heter Daniel # Seminar_1
